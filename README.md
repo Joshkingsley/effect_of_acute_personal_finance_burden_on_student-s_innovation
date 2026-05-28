@@ -1,1 +1,0 @@
-# effect_of_acute_personal_finance_burden_on_student-s_innovation
